@@ -5,7 +5,7 @@ This is my CV at 2023 edition for apply full-time job and freelance job
 in Thai and UK is not same address and contact
 for freelance job is seperate email
 
-Find a job in a variety: UX/UI Designer, Graphic Designer, Data Analysis, Localisation, and Content creator.
+Find a job in a variety: UX/UI Designer, Graphic Designer, Data Analyst, Localisation, and Content creator.
 
 Please do not contact me if you are scammer.
 
